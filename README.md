@@ -1,0 +1,1 @@
+# Circuito-Parelo-resistencias-
